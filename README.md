@@ -2,7 +2,7 @@
 
 <h1 align="center"><img src="https://c.tenor.com/-jPecNydkV8AAAAi/yuri-anime.gif" width="6%"> Yay, I'm <a href="parraindex.fr">Ethan B.</a> <img src="https://c.tenor.com/ssgRAwUOGBIAAAAi/menhera-hey.gif" width="5%"></h1>
 
-<img src="https://i.imgur.com/VtuaIdc.png">
+<img src="https://i.imgur.com/4e41yU3.png">
 
 <a href="https://open.spotify.com/user/6kleftmh9t3vcmeuoeokpqiqn?si=6d6769e392074ce2">
     <p align="center">
